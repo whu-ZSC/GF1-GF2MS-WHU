@@ -1,7 +1,8 @@
 # GF1-GF2MS-WHU
 
-链接：https://pan.baidu.com/s/1kBpym0mW_TS9YL1GQ9t8Hw 
-提取码：9zuf
+Baidu Disk: https://pan.baidu.com/s/1kBpym0mW_TS9YL1GQ9t8Hw 
+
+password: 9zuf
 
 ![image](https://github.com/whu-ZSC/GF1-GF2MS-WHU/assets/150271896/7d64adbe-c93c-4976-b351-7163526c630b)
 
